@@ -1,2 +1,2 @@
-# Haga click  para insertar secso
+# xd lul
 Ahora soy un NPC controlado por el gobierno
